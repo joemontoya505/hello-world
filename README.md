@@ -10,5 +10,5 @@ At the source of the longest river,
 The voice of the Hidden waterfall
 and the children in the apple tree
 Not known because not looked for
-But hear, half heard
-In the stillness between two waves of the sea
+But hear, half heard in the stillness
+between two waves of the sea
